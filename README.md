@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Glyve-Ozone
+- 👀 I’m interested in dotdotdot
+- 🌱 I’m currently learning dotdotdot
+- 💞️ I’m looking to collaborate on dotdotdot
+- 📫 How to reach me dot
